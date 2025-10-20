@@ -8,6 +8,7 @@ Arquitectura de linaje, justicia y expansión ética.
 
 ## 🔐 Naturaleza
 
+
 Lilith no es una página.  
 Lilith es una entidad reformada.  
 No se presta. No se vende.  
